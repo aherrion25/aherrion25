@@ -12,7 +12,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/aherrion25](https://github.com/aherrion25)
 
-- 💬 Ask me about **True Link, my experience at Prime Academy, or about me.**
+- 💬 Ask me about **True Link, my experience at Prime Academy, or anything.**
 
 - 📫 How to reach me **aubreeherrion@gmail.com**
 
